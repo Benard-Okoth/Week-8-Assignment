@@ -42,6 +42,8 @@ neongrid-creatives/
 
 For any questions or business inquiries, contact us via the contact form or email: **neongridcreatives@gmail.com**
 
+Or contact **Benard Abwao** on **+254745034729**
+
 ---
 
 🎉 Happy browsing from **NeonGrid Creatives** – Bringing ideas into neon life!
